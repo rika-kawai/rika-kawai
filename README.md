@@ -1,1 +1,1 @@
-![Hi，I'am rika-kawai.](https://readme-typing-svg.demolab.com?font=Cascadia+Code&weight=700&size=17&duration=3000&pause=1000&color=CD9148&background=00000000&center=false&width=400&height=50&lines=Hi%EF%BC%8CI%27am+Leon.)
+
